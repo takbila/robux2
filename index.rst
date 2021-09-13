@@ -10,7 +10,7 @@ Garena Free Fire Unlimited Diamonds Hack Working Generator 2021
   <https://gamex.codes/930fe50>`_
 
   `CLICK HERE Free Fire Hack.
-  <https://gamex.codes/930fe50>`_
+  <https://gamex.codes/930fe50>`__
 
 3 minutes ago - Click on the "Access Generator" button, and open the generator. Select the amount of "Free Fire Diamonds" you want to generate. A new pop-up will ask for your free fire username, enter your username and click the button "Generate". Wait for the generator to finish the generating process.
 
